@@ -1,2 +1,0 @@
-# camila
-blanco chino
